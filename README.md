@@ -9,3 +9,7 @@ Meu nome é Julia Viana
 ### Você entrar em contato comigo 📫
 
 00001126024594sp@al.educacao.sp.gov.br
+
+@juuh._.xvs
+
+![](https://tenor.com/pt-BR/view/blue-birthday-gif-910688142023246455)
