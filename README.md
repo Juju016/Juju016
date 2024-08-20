@@ -12,4 +12,6 @@ Meu nome é Julia Viana
 
 @juuh._.xvs
 
-![]( https://tenor.com/pt-BR/view/blue-birthday-gif-910688142023246455)
+![image](https://github.com/user-attachments/assets/e761a824-eee4-4c6c-b78c-74adc660ba7b)
+
+
